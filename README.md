@@ -32,6 +32,4 @@ I do same-day ATS fix for USA jobs — $25 same-day, $30 with LinkedIn + Cover L
 
 - X: @scarletjonve
 - Email: timothyadesina39@gmail.com
-- PayPal / Payoneer / Wise accepted
-
-DM with "ATS" for free 10-min audit.
+- Fiverr (trusted): https://t.co/VNH1JqWwrc — $25 same-day ATS fix
